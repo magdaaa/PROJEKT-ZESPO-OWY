@@ -1,2 +1,0 @@
-PROJEKT-ZESPO-OWY
-=================
